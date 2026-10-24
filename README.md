@@ -5,3 +5,8 @@ E-BATH ~peace
 by
 leo
 panthhhhhhhhkrit
+
+
+
+HOW TO USE :
+Download the idex.html file and play
